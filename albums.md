@@ -27,6 +27,7 @@ Chicago - Chicago VII
 Chopin Favorites
 Chvrches - Every Eye Open
 Chvrches - Love is Dead
+Chvrches - The Bones of What You Believe
 Gary Clark Jr - Live
 John Coltrane - Black Pearls
 Eric Clapton - Slowhand
